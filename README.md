@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @alphastj
+- 👋 Hi, I’m Irawan Stj
 - 👀 I’m interested in stock exchange, IT, drawing, ...
-- 🌱 I’m currently learning programing code
+- 🌱 I’m currently learning programing code, just begin.
 - 💞️ I’m looking to collaborate on other contacts in twiter
 - 📫 How to reach me 087738837999
 
